@@ -1,2 +1,0 @@
-# primoLavoro
-lavoro di gruppo
